@@ -26,4 +26,4 @@ CCNA · TP-Link TPNP Routing & Switching · TPNP Business Wi-Fi
 
 ## 📫 Reach me
 
-📧 yyzhecheng@gmail.com · 💼 [LinkedIn](https://www.linkedin.com/) *(add your profile URL)*
+📧 yyzhecheng@gmail.com · 💼 [LinkedIn](https://www.linkedin.com/)
